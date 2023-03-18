@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Serenisense is the name of my blog. It describes a target for those looking for more grace under pressure, some relief from the strains of life, or ways to ease our suffering as individuals or our social groups.
